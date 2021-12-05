@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi 👋, I am Hirdyansh
 
 
  🔭 I’m currently studing in PSGitech and persuing my Computer Science as major.
